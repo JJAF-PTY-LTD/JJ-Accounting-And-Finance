@@ -1,1 +1,1 @@
-# JJ-Accounting-And-Finance
+# JJAF
